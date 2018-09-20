@@ -37,4 +37,4 @@ Training a horse takes much time and consistency.  Working with a horse every da
 “BreakingVs.Training.”MeredithManor.edu, www.meredithmanor.edu/features/articles/drm/breaking.asp.
 “Training Your Horse.” The Spruce: Katherine Blocksdorf 
 
-@matthewjmiller
+
