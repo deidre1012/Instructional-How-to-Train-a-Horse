@@ -23,15 +23,19 @@ Training a horse takes much time and consistency.  Working with a horse every da
 ## FAQ ##
 
 1. Q: How long does it take to train a horse?
+   
    A: Training does not have a set time when trainin a horse. Every horse is different when it comes to training. The best technique is to be patient with your horse where ever they are having trouble in the training. 
 
 2. Q: What if my horse is not getting better?
+  
    A: If you are struggling on making progress with your horse, then contact a professional or experienced horse trainer. Getting advice, help, and pointers will help you as the owner and trainer to figure out how to help your horse improve. 
 
 3. Q: How do I fix incorrect training on my horse?
+
    A: In order to fix incorrect training on your horse is to go back to the basics of training. By retraining them on the basics you are essentially making their foundation stronger to build on. 
 
 4. Q: How do I start training?
+
    A: The starting of training varies with the age and experience of the horse. If the horse has had previous owners it is wise to ask questions before purchasing the horse on his likes, dislikes, and behavioral patterns. If the horse is a foal with minimal training the best start is to let the foal become comfortable around people and being touched. 
 
 ## Sources ##
