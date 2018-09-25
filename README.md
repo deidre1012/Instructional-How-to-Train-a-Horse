@@ -1,7 +1,7 @@
 # How to Train a Horse #
 
-	  Horses are powerful, inquisitive, and intelligent animals.  Horses are unique for several characteristics.  They are a fight or flight animal.  Because they have no way to defend themselves, like a lion who has claws, a horse’s only other option is to run from danger.  Therefore, a horse is considered an animal of prey.  Only when they have no alternative will the horse stay and face the danger.  Another characteristic that makes a horse unique from other animals is their variety of ability.  Horses are quick footed and can cover long distances.  The next unique characteristic is their curious personalities.  Horses love to observe new things in their territory.  When something is new they will not immediately approach it.  Instead the horse will circle the new object until they know it will not threaten them.  Because of their curious personality horses are animals that think and react.  This is one reason why horses have been a valuable asset to man.  Over the course of history the horse has consistently been relied on by man.  Man has used horses for work, companionship, and transportation throughout history.  In today’s modern society, horses are not needed for transportation; however, they are still used for companionship, recreational activities, and work.  
-	The use of the horse is still desired today.  Unlike the old western movies, where the cowboys ride the horse until it was done bucking, the training today is more focused on the psychology and physicality of the horse.  Training a horse takes time, consistency, and respect of the horse.  Throughout this paper, I will walk through the most productive process on how to train a horse.  Training a horse is not breaking a horse.  The term breaking is less desired than training, even though many people use them interchangeably, due to people wanting to avoid breaking the spirit of the horse (Meredith).  The ultimate desired horse is one that the rider can ride without the worry of it purposefully throwing the rider off or acting aggressively.   There are several aspects that go into training a horse for a specific job; however, for the purpose of a generic well trained horse, the basics will allow anyone be able to have a safe horse to ride.   
+	  Horses are powerful, inquisitive, and intelligent animals.  Horses are unique for several characteristics.  They are a fight or flight animal.  Because they have no way to defend themselves, like a lion with claws, a horse’s only other option is to run from danger.  Therefore, a horse is considered an animal of prey.  Only when they have no alternative will the horse stay and face the danger.  Another characteristic that makes a horse unique from other animals is their variety of ability.  Horses are quick footed and can cover long distances.  The next unique characteristic is their curious personalities.  Horses love to observe new things in their territory.  When something is new they will not immediately approach it.  Instead the horse will circle the new object until they know it will not threaten them.  Because of their curious personality horses are animals that think and react.  This is one reason why horses have been a valuable asset to man.  Over the course of history the horse has consistently been relied on by man.  Man has used horses for work, companionship, and transportation throughout history.  In today’s modern society, horses are not needed for transportation; however, they are still used for companionship, recreational activities, and work.  
+	The use of the horse is still desired today.  Unlike the old western movies, where the cowboys ride the horse until it was done bucking, the training today is more focused on the psychology and physicality of the horse.  Training a horse takes time, consistency, and respect of the horse.  Throughout this paper, I will walk through the most productive process on how to train a horse for anyone who is searching for the basic principles on training horses.  Training a horse is not breaking a horse.  The term breaking is less desired than training, even though many people use them interchangeably, due to people wanting to avoid breaking the spirit of the horse (Meredith).  The ultimate desired horse is one that the rider can ride without the worry of it purposefully throwing the rider off or acting aggressively.   There are several aspects that go into training a horse for a specific job; however, for the purpose of a generic well trained horse, the basics will allow anyone be able to have a safe horse to ride.   
 
 ## Getting to Know the Horse ##
 
@@ -22,13 +22,17 @@ Training a horse takes much time and consistency.  Working with a horse every da
 
 ## FAQ ##
 
-1. How long does it take to train a horse?
+1. Q: How long does it take to train a horse?
+   A: Training does not have a set time when trainin a horse. Every horse is different when it comes to training. The best technique is to be patient with your horse where ever they are having trouble in the training. 
 
-2. What if my horse is not getting better?
+2. Q: What if my horse is not getting better?
+   A: If you are struggling on making progress with your horse, then contact a professional or experienced horse trainer. Getting advice, help, and pointers will help you as the owner and trainer to figure out how to help your horse improve. 
 
-3. How do I fix incorrect training on my horse?
+3. Q: How do I fix incorrect training on my horse?
+   A: In order to fix incorrect training on your horse is to go back to the basics of training. By retraining them on the basics you are essentially making their foundation stronger to build on. 
 
-4. 
+4. Q: How do I start training?
+   A: The starting of training varies with the age and experience of the horse. If the horse has had previous owners it is wise to ask questions before purchasing the horse on his likes, dislikes, and behavioral patterns. If the horse is a foal with minimal training the best start is to let the foal become comfortable around people and being touched. 
 
 ## Sources ##
 
@@ -36,5 +40,3 @@ Training a horse takes much time and consistency.  Working with a horse every da
 “Breaking In.” Hartstone Equestrian: Jody Hartstone and Lusitano Stallion Ali Baba | Equitation Science Training | Coaching and Lessons, www.hartstoneequestrian.com/Horse-Training/Breaking-In.
 “BreakingVs.Training.”MeredithManor.edu, www.meredithmanor.edu/features/articles/drm/breaking.asp.
 “Training Your Horse.” The Spruce: Katherine Blocksdorf 
-
-
