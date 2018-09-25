@@ -41,6 +41,9 @@ Training a horse takes much time and consistency.  Working with a horse every da
 ## Sources ##
 
 “10-Day Fundamentals Clinic at the Ranch.” Downunder Horsemanship ICal, downunderhorsemanship.com/.
+
 “Breaking In.” Hartstone Equestrian: Jody Hartstone and Lusitano Stallion Ali Baba | Equitation Science Training | Coaching and Lessons, www.hartstoneequestrian.com/Horse-Training/Breaking-In.
+
 “BreakingVs.Training.”MeredithManor.edu, www.meredithmanor.edu/features/articles/drm/breaking.asp.
+
 “Training Your Horse.” The Spruce: Katherine Blocksdorf 
