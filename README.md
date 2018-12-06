@@ -21,6 +21,7 @@ After desensitizing the horse, working through the round pen, and establishing l
 
 Training a horse takes much time and consistency.  Working with a horse every day for weeks produces the best results.  The reason for so many small steps when introducing something new to the horse is to allow them to think about it.  If the horse does not have time to think about what is happening to them, or what the trainer is asking him to do, then the horse could act more aggressive or scared.  Just like humans, the horse wants to think about what they are doing or what is happening before moving onto a harder level.  This is why it is important to start a horse with introductions and ground work.  Less accidents are prone to happen when the trainer is keeping them and the horse safe.
 
+
 ## FAQ ##
 
 1. Q: How long does it take to train a horse?
